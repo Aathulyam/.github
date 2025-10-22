@@ -47,4 +47,4 @@ Together, these divisions form a living ecosystem — a digital forge for creati
 ---
 
 © 2025 Athulyam Group · All Rights Reserved  
-**Founder:** Chickoo — *Chief Engineer, Athulyam Tech World*
+**Founder:** Venkatasubramanian  — *Chief Engineer, Athulyam Tech World*
